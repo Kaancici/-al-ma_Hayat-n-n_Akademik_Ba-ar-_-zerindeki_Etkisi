@@ -1,1 +1,1 @@
-# -al-ma_Hayat-n-n_Akademik_Ba-ar-_-zerindeki_Etkisi
+# Calisma_Hayatinin_Akademik_Basari_Uzerindeki_Etkisi
